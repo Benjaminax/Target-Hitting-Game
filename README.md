@@ -37,7 +37,7 @@ https://drive.google.com/drive/folders/1NdhY2-r07EpvDSzTpl6h7etxyYN_dRG0?usp=dri
 
 If you have any questions, you can reach me here:
 
-- **Instagram:** @_.benjamin.a._
+- **Instagram:** [@_.benjamin.a._](https://www.instagram.com/_.benjamin.a._/)
 - **Email:** kojoben29@gmail.com
 
 In God we trust
